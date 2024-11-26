@@ -1,1 +1,3 @@
 # Professional-Statement
+I am a curious individual who thrives un understanding complex topics and disseminatiing them to a larger audience. Motivated to create a culture of growth and development to priovide autonomy through education, allowing all individuals access to knowledge to increase efficiency. I place a high value on growth through failure and exposure for the sake of development.
+I excel in building trust with individuals to leverage my knowlese and collaberate in areas where I can still develope further. I have a long term goal of simplifying cybersecurity with anyone I interact with and hope to empower people to become more aware an conscious of their own cyber practises. 
